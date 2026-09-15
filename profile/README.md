@@ -1,8 +1,12 @@
-## Doran-and-Daughters
+## Doran & Daughters
 
-#### A traditional, independent publisher
+#### A small, independent publisher developing carefully-edited and elegantly-produced books, translations, periodicals, and digital editions in the humanities
 
-### Mathetωn Press
+Our publications are scholarly in method, enjoyable to read, and distinguished for editorial transparency and elegant production and design. We select and develop our own programme; we are not a fee-charging or vanity press.
+
+Our current publishing programme includes:
+
+### Mathetωn Editions
 
 Crowd-funded traditional publishing for independent scholarship in the humanities
 
